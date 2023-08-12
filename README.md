@@ -1,0 +1,2 @@
+# WEBHOOKSPAMMERLINK
+PINGSERVER WEBHOOK HAS SOUND FAST SPAM HAVE PICTURES use link webhook mass ping channel spam very fast
